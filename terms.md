@@ -1,6 +1,6 @@
 # Terms of Service - Cursor x H&P
 
-Last Updated: December 5, 2023
+Last Updated: December 5, 2024
 
 ## 1. Introduction
 
