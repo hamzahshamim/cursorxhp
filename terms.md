@@ -1,4 +1,4 @@
-# Terms of Service - Cursor x H&P
+# Terms of Service - H&P Made Easy
 
 Last Updated: December 5, 2024
 
