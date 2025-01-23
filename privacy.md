@@ -1,4 +1,4 @@
-# Privacy Policy - Cursor x H&P
+# Privacy Policy - H&P Made Easy
 
 Last Updated: December 5, 2024
 
