@@ -71,7 +71,7 @@ We reserve the right to modify these terms at any time. Users will be notified o
 
 ## 7. Contact
 
-For questions about these terms, contact: support@cursorxhp.com
+For questions about these terms, contact: theperfecthp@gmail.com
 
 ## 8. Governing Law
 
