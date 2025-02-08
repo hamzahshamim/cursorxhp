@@ -83,7 +83,7 @@ We will notify users of any material changes to this policy through the App.
 
 ## 9. Contact Information
 
-For privacy-related questions, contact: privacy@cursorxhp.com
+For privacy-related questions, contact: theperfecthp@gmail.com
 
 ## 10. California Privacy Rights
 
